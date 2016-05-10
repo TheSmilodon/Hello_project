@@ -1,6 +1,6 @@
 Oh, it's time to let it go
 
-The world's got a funny way of turning 'round on you
+siema siema siema brat
 When a friend tries to stab you right in the face
 Losing faith in everything I thought I hoped I knew
 Don't sweat it, {it was} set on false pretense
