@@ -1,6 +1,6 @@
 Oh, it's time to let it go
 
-jak masz się dobrze, dobrze a jak Ty?
+two
 When a friend tries to stab you right in the face
 Losing faith in everything I thought I hoped I knew
 Don't sweat it, {it was} set on false pretense
