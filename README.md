@@ -1,3 +1,16 @@
-# Hello_project
-The first project made during tutorial makinkg.
-Some changes for new branch
+Oh, it's time to let it go
+
+The world's got a funny way of turning 'round on you
+When a friend tries to stab you right in the face
+Losing faith in everything I thought I hoped I knew
+Don't sweat it, {it was} set on false pretense
+
+Betrayed but not gonna be willing to change
+And it doesn't seem likely to fade
+Betrayed but not gonna be willing to change
+Cu-cu-cu-cuz you know...
+
+It's sacrifice
+False pretense you'll hurt again
+Stop pretending to deny
+False pretense you'll hurt again
